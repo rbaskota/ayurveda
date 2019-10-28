@@ -1,0 +1,2 @@
+# ayurveda
+Ayurveda Knowledge
